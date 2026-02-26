@@ -13,5 +13,5 @@ Twitter / X: https://x.com/pilkster
 
 LinkedIn: https://www.linkedin.com/in/simonjpilkington/
 
-🦞 Bgi7MQJDX2DPKKS9rqiPCastPfjYuCRLD7ZDEGjh1Hcf
+🦞 
 
